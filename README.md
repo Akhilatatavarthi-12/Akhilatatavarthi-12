@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **html,css**
 
-- 📫 How to reach me **akhilatatavrthi05@gmail.com**
+- 📫 How to reach me **akhilatatavarthi05@gmail.com**
 
 - 📄 Know about my experiences [linkdein.com/](linkdein.com/)
 
